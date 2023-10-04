@@ -8,5 +8,7 @@ Sertifikat Keanggotaan Bina Darma Cyber Army
 
 
 
-
+| Nama | Nomor     |             
+| :-------- | :------- | 
+| Farhan Al Fauzan | [BDCA-2021-0001-14-01-2023](https://cloud.sriwijayacyber.com/drive/s/Ex3DjcJGgjuDYxRTGkzNgiAVyES9Ff) | 
 
