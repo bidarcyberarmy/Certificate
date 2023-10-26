@@ -11,5 +11,5 @@
 | Athiyyah Zahra | [BDCA-2021-0007-14-01-2023](https://drive.google.com/file/d/1UawAf3EJfjDBqbetG7mqlJxnC_3AzvSZ/view?usp=sharing)
 | Dwi Robbi Prasetyo | [BDCA-2021-0008-14-01-2023](https://drive.google.com/file/d/1CrB53MxP_u3q7dUNtLHx_t7cWHSrtdbE/view?usp=sharing)
 | Wahyu Pranata | [BDCA-2021-0009-14-01-2023](https://drive.google.com/file/d/1k0oeEyALhiiaq0F9k3DWYRYTm6VJQP-c/view?usp=sharing)
-| M Hafizin Syahid Wakillah | [BDCA-2021-00010-14-01-2023](https://drive.google.com/file/d/15mEuz0cMkXZhexDD3bvpefE7v_XDNb7c/view?usp=drive_link)
+| M Hafizin Syahid Wakillah | [BDCA-2021-00010-14-01-2023](https://drive.google.com/file/d/1hdPmEdra6JU6Smc1oU6H6aJxa9xFJIjG/view?usp=drive_link)
 | Suprayogi | [BDCA-2021-0011-14-01-2023](https://drive.google.com/file/d/1GFsK52LdBLK4vX3NUSdEoZF_32BSd1Xz/view?usp=drive_link)
