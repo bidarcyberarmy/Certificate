@@ -19,7 +19,7 @@
 | M. Galang Aryadipa Dwinata | [BDCA-2022-0003-08-11-2023](https://drive.google.com/file/d/1Mx9rjjGf_G2BGX11kv7n09ly8tHPlH7z/view?usp=sharing)
 | Ravike Restu Ninggar | [BDCA-2022-0004-08-11-2023](https://drive.google.com/file/d/1pj24hFWD5lqY0rH1p_x6TSLi_OQ-ZMd-/view?usp=sharing)
 | Muhammad Arif Rahmad S | [BDCA-2022-0006-08-11-2023](https://drive.google.com/file/d/1DnEFH45X8wM7Wwsvsjj6zPsVEKcCF3RZ/view?usp=sharing)
-| M. samsu hidayattulah | [BDCA-2021-0014-08-11-2023](https://drive.google.com/file/d/1Ekb1BYDY-08j_ftiE6tkP0FLLDkOgxEd/view?usp=sharing)
+| M samsu hidayattullah | [BDCA-2021-0014-08-11-2023](https://drive.google.com/file/d/1_ITUpykEBP5z61WeLiw-hPhd-R0SV44J/view?usp=sharing)
 
 
 
