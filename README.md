@@ -22,6 +22,7 @@
 | M Samsu Hidayattullah | [BDCA-2021-0014-08-11-2023](https://drive.google.com/file/d/1_ITUpykEBP5z61WeLiw-hPhd-R0SV44J/view?usp=sharing)
 | M Akbar Rezkila Kohar | [BDCA-2022-0002-08-11-2023](https://drive.google.com/file/d/1qVQ76yJRSdxDTDmJgUaCGiwLGXKGT9N_/view?usp=sharing)
 | Yosandra Saputri | [BDCA-2022-0009-08-11-2023](https://drive.google.com/file/d/12oepeVeE68z0T5VeSc72EK-X-6GxYOhx/view?usp=sharing)
+| Rakha Diyan Firlando | [BDCA-2021-0015-08-11-2023](https://drive.google.com/file/d/1y9RyF_rbaorV4fBIfB_CEtbaZqkBYJIS/view?usp=sharing)
 
 
 
