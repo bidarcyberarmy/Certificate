@@ -23,6 +23,8 @@
 | M Akbar Rezkila Kohar | [BDCA-2022-0002-08-11-2023](https://drive.google.com/file/d/1qVQ76yJRSdxDTDmJgUaCGiwLGXKGT9N_/view?usp=sharing)
 | Yosandra Saputri | [BDCA-2022-0009-08-11-2023](https://drive.google.com/file/d/12oepeVeE68z0T5VeSc72EK-X-6GxYOhx/view?usp=sharing)
 | Rakha Diyan Firlando | [BDCA-2021-0015-08-11-2023](https://drive.google.com/file/d/1y9RyF_rbaorV4fBIfB_CEtbaZqkBYJIS/view?usp=sharing)
+| Kiagus Fallah Abrar Alka |[BDCA-2021-0016-12-08-2024](https://drive.google.com/file/d/13AvdgJ5jl7QTAJQz27Z_o2YOJigajp-Q/view?usp=sharing)
+
 
 
 
