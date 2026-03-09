@@ -26,7 +26,6 @@
 | Kiagus Fallah Abrar Alka |[BDCA-2021-0016-12-08-2024](https://drive.google.com/file/d/13AvdgJ5jl7QTAJQz27Z_o2YOJigajp-Q/view?usp=sharing)
 | Dandy |[BDCA-2021-0017-19-09-2024](https://drive.google.com/file/d/1B_xVeCtifuc7xEmj1omyfMntbYM16rl8/view?usp=sharing)
 | Muhammad Reza Pahlepi |[BDCA-2018-0018-24-09-2024](https://drive.google.com/file/d/1Dz-WMNvWRduLs-jl2Kaafxz-ih94znGu/view?usp=sharing)
-
 | Syharul Ramadhan |[BDCA-2021-0014-09-04-2026](https://drive.google.com/file/d/1J4IWuHjgY_ksMX7PQ8LF4TdqHwYFAcyc/view?usp=sharing)
 | Yoga Maulana |[BDCA-2021-0015-09-04-2026](https://drive.google.com/file/d/1HldYHHP94Wt_MABNbvO0XDn4wLHAHsNZ/view?usp=sharing)
 
